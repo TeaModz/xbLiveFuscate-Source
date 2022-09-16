@@ -1,3 +1,3 @@
 # xbLiveFuscate-Source
 
-Enyoing and stay strong <3
+Have Fun and stay strong <3
